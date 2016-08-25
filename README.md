@@ -17,5 +17,7 @@
 
 [我的博客](renxuelong.github.io)
 
+![](http://ww3.sinaimg.cn/bmiddle/b2e66aedgw1f1nebj0vlbj20q90sg0xa.jpg)
 
+>和
 
